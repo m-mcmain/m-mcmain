@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @m-mcmain
-- 👀 I’m interested in Labor and Trade Economics
+- 👀 I’m interested in Labor and International Economics
 - 📫 My email is mcmain@wisc.edu
 
 <!---
